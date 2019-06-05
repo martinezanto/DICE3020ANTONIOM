@@ -42,3 +42,12 @@ Consider concluding with a final reflection about your process and decision maki
 
 3. In what situation outside of class/school might this project might be applicable and how so? 
 
+# Sources
+
+Dhwty. “Eye of Horus: The True Meaning of an Ancient, Powerful Symbol.” Ancient Origins, Ancient Origins, 18 Nov. 2018, www.ancient-origins.net/artifacts-other-artifacts/eye-horus-0011014.
+Scoville, Priscila. “Egyptian Hieroglyphs.” Ancient History Encyclopedia, Ancient History Encyclopedia, 29 May 2019, www.ancient.eu/Egyptian_Hieroglyphs/.
+“Design Anything.” Amazingly Simple Graphic Design Software – Canva, www.canva.com/.
+“File:Eye of Horus Bw.svg.” File:Eye of Horus Bw.svg - Wikimedia Commons, commons.wikimedia.org/wiki/File:Eye_of_Horus_bw.svg.
+
+
+
