@@ -6,7 +6,7 @@ The reason that I chose to research and implement the Eye of Horus into my proje
 
 ![eye-of-horus.JPG](eye-of-horus.JPG)
 
-# Historical Context (200-300 words)
+# Historical Context
 The creation and implementation of the hieroglyph was by the ancient Egyptians. The language was composed of logograms which represent words, phonograms representing sound, and determinatives which are located at the end of the word to clarify meaning.  History believes that these drawing originated from hunting civilizations in the desert of the west Nile. But they also believe the god Thoth created the writing to make the Egyptians able to retain their knowledge and culture over time. “Thus, the word hieroglyph comes from the Greek hiero ‘holy’ and the glypho ‘writing’. In the ancient Egyptian language, hieroglyphs were called medu netjer, the gods ‘words’ as it was believed that writing was an invention of the gods.”   The Egyptians are famous for their pottery and burial rituals, these objects often had hieroglyphs on them to tell their story. In its early existence often, these hieroglyphs were carved on rectangular wood or ivory for jewelry. They were are also put on stone, metal, and ceramic for their burial rituals. The most common reason people know about hieroglyphs is that they are on or inside the pyramids located in Egypt. 
 
 
