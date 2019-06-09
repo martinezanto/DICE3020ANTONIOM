@@ -38,9 +38,13 @@ If I had a large amount of time and resources I would change my adaption complet
 3. In what situation outside of class/school might this project might be applicable and how so? 
 The way in which I think that this situation may present itself outside this project is that now when I look at advertisements I will take the time to realize all the symbolism that are often included in them that people don’t notice. Additionally, I will see all the formal qualities that are present. It gives me a new appreciation for advertisements and business logos. Also, if I worked in a marketing company or position I may be make advertisement or persuasive documents. This will help me in creating them.
 
-# Sources
+# Work Cited
+1.Dhwty. “Eye of Horus: The True Meaning of an Ancient, Powerful Symbol.” Ancient Origins, Ancient Origins, 18 Nov. 2018, www.ancient-origins.net/artifacts-other-artifacts/eye-horus-0011014.
+2.Scoville, Priscila. “Egyptian Hieroglyphs.” Ancient History Encyclopedia, Ancient History Encyclopedia, 29 May 2019, www.ancient.eu/Egyptian_Hieroglyphs/.
+3.“Design Anything.” Amazingly Simple Graphic Design Software – Canva, www.canva.com/.
+4.“File:Eye of Horus Bw.svg.” File:Eye of Horus Bw.svg - Wikimedia Commons, commons.wikimedia.org/wiki/File:Eye_of_Horus_bw.svg.
+5.“Eval(ez_write_tag([[728,90],'incredibleart_org-Box-2','ezslot_5',113,'0']));Color Symbolism and Culture.” Symbolism of Color: Using Color for Meaning, www.incredibleart.org/lessons/middle/color2.htm.
+6.B, Hara. “Julie Sanders - What Is Adaptation?” Julie Sanders - What Is Adaptation?, 1 Jan. 1970, globalshakespearesbu.blogspot.com/2014/11/julie-sanders-what-is-adaptation.html.
+7.“Theoretical Context for Barthess Theories of the Text.” Introduction :: Theoretical Context, www.arts.uwaterloo.ca/~raha/700_701_web/BarthesLO/theory.html.
+8.“Society of the Spectacle.” Beautiful Trouble, beautifultrouble.org/theory/society-of-the-spectacle/.
 
-Dhwty. “Eye of Horus: The True Meaning of an Ancient, Powerful Symbol.” Ancient Origins, Ancient Origins, 18 Nov. 2018, www.ancient-origins.net/artifacts-other-artifacts/eye-horus-0011014.
-Scoville, Priscila. “Egyptian Hieroglyphs.” Ancient History Encyclopedia, Ancient History Encyclopedia, 29 May 2019, www.ancient.eu/Egyptian_Hieroglyphs/.
-“Design Anything.” Amazingly Simple Graphic Design Software – Canva, www.canva.com/.
-“File:Eye of Horus Bw.svg.” File:Eye of Horus Bw.svg - Wikimedia Commons, commons.wikimedia.org/wiki/File:Eye_of_Horus_bw.svg.
